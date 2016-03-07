@@ -21,8 +21,8 @@ Sauce Ingredients
 *  1/8 cup brown sugar
 *  1/2 cup ketchup
 *  1 tablespoon yellow mustard
-*  4oz. can tomato sauce
-*  8oz. can mushrooms
+*  4 oz. can tomato sauce
+*  8 oz. can mushrooms
 
 1. Mix ingredients
 2. Form into nine meatballs and place in a 9"x9" baking pan. 
